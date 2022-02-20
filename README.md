@@ -1,3 +1,2 @@
-# darkhubold
-YOOOOOOOOOO IT STILL WORKS
+# darkhub
 all credits to darkhub :thumbsup:
